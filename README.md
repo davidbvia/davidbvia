@@ -1,6 +1,6 @@
 
 
-## Hi, David B. Via! 
+## Hi, David Bergé Via! 
 
 ### Welcome to GitHub's main page
 
